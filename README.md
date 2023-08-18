@@ -60,3 +60,23 @@ Chapeu- 300,00 R$
 
 ![download](https://github.com/MarksVitor/jun-work-festas/assets/134701542/80a415ca-b3e4-4a10-be58-e3ab47f467a4)
 
+
+
+
+
+
+
+
+
+
+Estalinho - 5,00 R$
+
+
+
+
+
+
+
+
+![download](https://github.com/MarksVitor/jun-work-festas/assets/134701542/30703eaf-f857-4626-9b8a-bf6386977aae)
+
