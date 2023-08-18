@@ -113,3 +113,17 @@ decoração para festa- 50,00 R$
 
 ![images](https://github.com/MarksVitor/jun-work-festas/assets/134701542/435973ef-6a84-4f64-84d8-0c80f38311f4)
 
+
+
+
+
+
+
+
+cocada bobão- 6700,00 R$
+
+
+
+
+
+![download](https://github.com/MarksVitor/jun-work-festas/assets/134701542/f4a425dd-7924-496c-860b-0f564f635150)
