@@ -18,17 +18,13 @@
 
 
 
-![stickergiant-swipe-up](https://github.com/MarksVitor/jun-work-festas/assets/134701542/9e015105-9235-466d-b78e-1b18a36656ca)
-![stickergiant-swipe-up](https://github.com/MarksVitor/jun-work-festas/assets/134701542/9e015105-9235-466d-b78e-1b18a36656ca)
-![stickergiant-swipe-up](https://github.com/MarksVitor/jun-work-festas/assets/134701542/9e015105-9235-466d-b78e-1b18a36656ca)
-
 
 
 **COMPRAS ABAIXO** <sub>qualquer problema de compra e venda entrar em contato
 
 
 
-
+Pipoca-45,50 R$
 ![download](https://github.com/MarksVitor/jun-work-festas/assets/134701542/f46d4c64-1e38-48cc-9006-9a9bd8655563)
 
 
