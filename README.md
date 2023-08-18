@@ -41,3 +41,17 @@ Paçoquita- 100,00 R$
 
 
 ![download](https://github.com/MarksVitor/jun-work-festas/assets/134701542/6fda3669-f0cc-4775-b82f-f1c59faee94b)
+
+
+
+
+
+
+Chapeu- 300,00 R$
+
+
+
+
+
+![download](https://github.com/MarksVitor/jun-work-festas/assets/134701542/80a415ca-b3e4-4a10-be58-e3ab47f467a4)
+
